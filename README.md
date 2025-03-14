@@ -16,10 +16,10 @@ okay whatever go my buildermonlings...
 
 (hi snurbo, goata, loafster, strawbedberri, chairi and *bea*baboobie:3)
 
+THE GIVER DROPPEDDDDDDDD [GO STREAM IT](https://open.spotify.com/track/5xHgo5JN0wfsV41HnRaos5)
 
 
-
-<p align="right">
+<p align="center">
 <img src="https://files.catbox.moe/mq0jdc.webp">
 </p> 
 
