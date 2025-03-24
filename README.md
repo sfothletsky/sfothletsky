@@ -1,4 +1,4 @@
-more info on [strawpage](https://sfothletsky.straw.page) + it looks nicer !! send me stuff :3
+this is just my [rentry](https://rentry.co/diallup)'s extra info but more condensed i guessss? send me stuff on [strawpage](https://sfothletsky.straw.page)!! (i wont see it forever tho)
 
 i attach myself to characters as a form of coping, i'll be defensive of the characters im attached to, so dont be weird abt them to me please
 
