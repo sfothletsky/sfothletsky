@@ -1,4 +1,4 @@
-this is just my [rentry](https://rentry.co/diallup)'s extra info but more condensed i guessss? send me stuff on [strawpage](https://sfothletsky.straw.page)!! (i wont see it forever tho)
+this is just my [rentry](https://rentry.co/diallup)'s extra info but more condensed i guessss? send me stuff on [strawpage](https://sfothletsky.straw.page)!! (art gimmicks r down)
 
 i attach myself to characters as a form of coping, i'll be defensive of the characters im attached to, so dont be weird abt them to me please
 
@@ -20,10 +20,10 @@ THE GIVER DROPPEDDDDDDDD [GO STREAM IT](https://open.spotify.com/track/5xHgo5JN0
 
 
 <p align="center">
-<img src="https://files.catbox.moe/mq0jdc.webp">
+<img src="https://files.catbox.moe/s5nmlu.webp">
 </p> 
 
-[art cred](https://x.com/PlumBuildermon)
+[art cred](https://x.com/vamoopy)
 
 ---
 
