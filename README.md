@@ -1,5 +1,7 @@
 this is just my [rentry](https://rentry.co/diallup)'s extra info but more condensed i guessss? send me stuff on [strawpage](https://sfothletsky.straw.page)!! (art gimmicks r down)
 
+i like making shipnamesss... click [here](rentry.co/lilycrow)
+
 i attach myself to characters as a form of coping, i'll be defensive of the characters im attached to, so dont be weird abt them to me please
 
 dont be scared to talk to me!! i love meeting new people, just make sure you whisper or i might not see it...
