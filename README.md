@@ -1,6 +1,4 @@
-this is just my [rentry](https://rentry.co/diallup)'s extra info but more condensed i guessss? send me stuff on [strawpage](https://sfothletsky.straw.page)!! (art gimmicks r down)
-
-i like making shipnamesss... click [here](https://rentry.co/lilycrow)
+errrrmmm [rentry](https://rentry.co/mirroredgem) & [strawpage](https://sfothletsky.straw.page) attack
 
 i attach myself to characters as a form of coping, i'll be defensive of the characters im attached to, so dont be weird abt them to me please
 
