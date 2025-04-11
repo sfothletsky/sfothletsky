@@ -20,10 +20,10 @@ THE GIVER DROPPEDDDDDDDD [GO STREAM IT](https://open.spotify.com/track/5xHgo5JN0
 
 
 <p align="center">
-<img src="https://files.catbox.moe/s5nmlu.webp">
+<img src="https://files.catbox.moe/6valav.png">
 </p> 
 
-[art cred](https://x.com/vamoopy)
+[icon](https://www.tumblr.com/rokikubo/774513683774816256/low-stakes-ms-paint-doodles?source=share) & [deco](https://www.tumblr.com/chernyskaaa/770742699005444096/they-didnt-communicate-much-but-they-have?source=share) credz
 
 ---
 
